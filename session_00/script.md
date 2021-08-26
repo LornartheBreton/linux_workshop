@@ -2,7 +2,7 @@
 
 ## Introducción
 
-Propongo el cambio al párrafo anterior: Amigos, amigas, itamitas y no tan itamitas... Por años nuestra queridísima H. te ha dicho que nuestra libertad es lo más valioso que tenemos, y hoy venimos a ayudarte a defender la libertad de tu vida digital... Una libertad que, francamente, estamos perdiendo día tras día.
+Amigos, amigas, itamitas y no tan itamitas... Por años nuestra queridísima H. te ha dicho que nuestra libertad es lo más valioso que tenemos, y hoy venimos a ayudarte a defender la libertad de tu vida digital... Una libertad que, francamente, estamos perdiendo día tras día.
 
 "̉¿Pero... Por qué la estamos perdiendo?" De seguro se preguntan.  
 
